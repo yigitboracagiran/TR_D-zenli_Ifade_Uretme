@@ -1,0 +1,1 @@
+# TR_D-zenli_Ifade_Uretme
